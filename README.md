@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOLR950130HNTPPC02
+LOLR950130HNTPPC02
